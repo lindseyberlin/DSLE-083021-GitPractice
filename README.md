@@ -67,7 +67,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Jen S 
-
+! [Patrick Star very confused gif from giphy] (https://media.giphy.com/media/3oxOCgO51eEuHZbetG/giphy.gif?cid=ecf05e47mdmrxrt2bnzj8gze0fl8seobi75bbd12p8swgclg&rid=giphy.gif&ct=g)
 
 ### Jennifer C 
 
