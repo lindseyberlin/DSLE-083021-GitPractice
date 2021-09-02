@@ -31,7 +31,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Andrew 
-
+![Brutus pumping iron](https://media.giphy.com/media/xT8qBbNGjXTo4XzuJa/giphy.gif?cid=ecf05e47f5m0lfm2uwjdvm4c0h5b7sgkirh23c1viux5y1si&rid=giphy.gif&ct=g)
 
 ### Brooke 
 
