@@ -64,7 +64,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Jeff 
-
+![Shaq and cat vibing gif](https://media.giphy.com/media/W80Y9y1XwiL84/giphy.gif?cid=ecf05e47lgamqhb0oanihkoaplo7vc1td0io6e5z8479fgga&rid=giphy.gif&ct=g)
 
 ### Jen S 
 
