@@ -19,7 +19,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Lindsey
 
-![hitchhiker's guide thursday gif from giphy](https://media.giphy.com/media/esIEbQqOP14PK/giphy.gif?cid=ecf05e47uv192vxnlwyupoicecvhpmwb7undx1lyorrj6ire&rid=giphy.gif&ct=g)
+![samantha accidentally changed this but hopefully this is overridden by another change!](https://media.giphy.com/media/rkf8zqAoz0a5tJKphg/giphy.gif?cid=ecf05e471ce0100c33fa0e955a6ae0f8e61f9873d27c7dd8&rid=giphy.gif)
 
 ### Aidan 
 
@@ -94,7 +94,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Samantha 
-
+![picture of a sleepy baby](https://media.giphy.com/media/xT8qBvH1pAhtfSx52U/giphy.gif?cid=ecf05e47purjp99af5quyedqo3c661se4iaov66t4edwce5f&rid=giphy.gif)
 
 ### Scott 
 
