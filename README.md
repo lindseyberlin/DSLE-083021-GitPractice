@@ -19,7 +19,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Lindsey
 
-![hitchhiker's guide thursday gif from giphy](https://media.giphy.com/media/esIEbQqOP14PK/giphy.gif?cid=ecf05e47uv192vxnlwyupoicecvhpmwb7undx1lyorrj6ire&rid=giphy.gif&ct=g)
+![hitchhiker's guide thursday gif from giphy](https://media.giphy.com/media/Pjr0NCGk4WMQPQtg0C/giphy-downsized-large.gif?cid=ecf05e47ozxd6qpf3lzc6yd7yfvtext7612hkdvg2ul3y110&rid=giphy-downsized-large.gif&ct=g)
 
 ### Aidan 
 
@@ -34,7 +34,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Brooke 
-
+![stressed Selena](https://media.giphy.com/media/Pjr0NCGk4WMQPQtg0C/giphy-downsized-large.gif?cid=ecf05e47ozxd6qpf3lzc6yd7yfvtext7612hkdvg2ul3y110&rid=giphy-downsized-large.gif&ct=g)
 
 ### Crystal 
 
