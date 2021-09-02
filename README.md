@@ -58,7 +58,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Jade 
-![nodders from tenor](https://tenor.com/brVMF.gif)
+![nodders from tenor](https://tenor.com/view/nodders-nodding-gif-19010967)
 
 ### Jalen 
 
