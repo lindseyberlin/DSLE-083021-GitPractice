@@ -19,7 +19,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Lindsey
 
-![hitchhiker's guide thursday gif from giphy](https://media.giphy.com/media/esIEbQqOP14PK/giphy.gif?cid=ecf05e47uv192vxnlwyupoicecvhpmwb7undx1lyorrj6ire&rid=giphy.gif&ct=g)
+![cat vibing gif from giphy](https://media.giphy.com/media/GeimqsH0TLDt4tScGw/giphy.gif?cid=ecf05e4725q6gmn180xqw1x7bdw5itot9d5e8pxz5yt7pma7&rid=giphy.gif&ct=g)
 
 ### Aidan 
 
