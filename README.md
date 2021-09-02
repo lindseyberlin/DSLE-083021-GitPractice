@@ -44,7 +44,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Dave
 
-![Letterkenny-Hooray gif from giphy] https://media.giphy.com/media/AhXw4MktwT7C16OsmG/giphy.gif?
+![Letterkenny-Hooray gif from giphy](https://media.giphy.com/media/AhXw4MktwT7C16OsmG/giphy.gif?)
 
 ### Derek 
 
