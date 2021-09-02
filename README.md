@@ -20,3 +20,99 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Lindsey
 
 ![hitchhiker's guide thursday gif from giphy](https://media.giphy.com/media/esIEbQqOP14PK/giphy.gif?cid=ecf05e47uv192vxnlwyupoicecvhpmwb7undx1lyorrj6ire&rid=giphy.gif&ct=g)
+
+### Aidan 
+
+
+### Alex D 
+
+
+### Alex M 
+
+
+### Andrew 
+
+
+### Brooke 
+
+
+### Crystal 
+
+
+### Danielle 
+
+
+### Dave
+
+
+### Derek 
+
+
+### Ely 
+
+
+### Emine 
+
+
+### Garrett 
+
+
+### Jade 
+
+
+### Jalen 
+
+
+### Jeff 
+
+
+### Jen S 
+
+
+### Jennifer C 
+
+
+### Louis 
+
+
+### Matthew 
+
+
+### Mellissa 
+
+
+### Michael 
+
+
+### Nick 
+
+
+### Patrick 
+
+
+### Paul
+
+
+### Samantha 
+
+
+### Scott 
+
+
+### Stephen 
+
+
+### Tamiru
+
+
+### Teetee 
+
+
+### Teigen 
+
+
+### Tony 
+
+
+### Wayne
+
