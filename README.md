@@ -53,8 +53,10 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Emine 
 
+![stressed coffee gif from giphy](https://media.giphy.com/media/M4ecx9P2jI4tq/giphy.gif?cid=ecf05e47ijn5e7fpzebtq96meuibopwmweo6op524mxygd80&rid=giphy.gif&ct=g)
 
 ### Garrett 
+
 
 
 ### Jade 
