@@ -97,6 +97,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Scott 
+![Twin Peaks gif from giphy](https://media.giphy.com/media/3o6wryqu8svcXbjVbW/giphy.gif?cid=ecf05e473btwx1mfs5r46rm60mxxleh4l228sflmi6pzazcw&rid=giphy.gif&ct=g)
 
 
 ### Stephen 
