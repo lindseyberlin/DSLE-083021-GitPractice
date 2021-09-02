@@ -91,7 +91,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Paul
-
+![Good Morning Coffee gif from giphy](https://media.giphy.com/media/xFmwnGWu0UUb0pRIVq/giphy.gif?cid=ecf05e47fma61cl32hatphger34yab7qkjhqwtuyp8rsnipo&rid=giphy.gif&ct=g)
 
 ### Samantha 
 
