@@ -86,6 +86,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Nick 
 
+![Eddie Hall squatting heavy, from youtube - aka the weight of data science knowledge](/Users/nickindorf/Desktop/image.jpeg)
 
 ### Patrick 
 
