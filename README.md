@@ -46,6 +46,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Derek 
+https://media.giphy.com/media/3nbxypT20Ulmo/giphy.gif
 
 
 ### Ely 
